@@ -1,1 +1,8 @@
-/home/mauro/UNSAM_SE_Investigacion/Sin título.md
+
+
+---
+**Conexiones:**
+Texto base: [[]]
+[[]]
+[[]]
+[[]]

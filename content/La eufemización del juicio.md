@@ -1,0 +1,2 @@
+[[Las categorías del Juicio Profesoral]]
+El docente no dice "este alumno es pobre", dice que es "pesado", "laborioso" o "vulgar". Esta operación transforma una clasificación social en una clasificación estética o moral, logrando que la exclusión parezca una cuestión de "falta de gusto" o "falta de brillo".

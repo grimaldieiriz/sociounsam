@@ -1,0 +1,2 @@
+[[Las categorías del Juicio Profesoral]]
+Un concepto sutil es la valoración negativa de lo "serio" o "trabajador". Para la élite, el éxito debe parecer natural y sin esfuerzo (la *aisance* o soltura); si un docente describe a un alumno como "muy trabajador", a menudo está señalando -en código- que carece del "don" o la genialidad innata, limitando su destino a puestos subalternos de ejecución.

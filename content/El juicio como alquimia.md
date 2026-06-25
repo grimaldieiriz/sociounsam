@@ -1,0 +1,2 @@
+[[Las categorías del Juicio Profesoral]]
+Las etiquetas (adjetivos) funcionan como una "magia social" que instituye una esencia en el alumno. Si se le etiqueta como "brillante", se le confirma su derecho a mandar; si se le etiqueta como "limitado", se le condena a aceptar su exclusión como algo merecido por su propia "naturaleza".

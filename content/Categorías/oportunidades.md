@@ -1,0 +1,1 @@
+[[influencia del entorno]]
